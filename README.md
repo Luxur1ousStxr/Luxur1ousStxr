@@ -10,10 +10,6 @@
 
 ┊  ┊° .✫ ﾟ. ꒷꒦ 𝓟𝓻𝓸𝓷𝓸𝓾𝓷𝓼 : 𝓢𝓱𝓮/𝓗𝓮𝓻 (𝓣𝓱𝓮𝔂/𝓣𝓱𝓮𝓶)
 
-
-<img width="735" height="576" alt="image" src="https://github.com/user-attachments/assets/d99adf6e-ce49-4fdc-92d4-457bde5f12e1" />
-
-
 ┊  ✦ ₊° . 𝓜𝔂 𝓢𝔀𝓮𝓮𝓽𝓮𝓼𝓽 𝓟𝓸𝓽𝓪𝓽𝓸 : @𝓼𝓸𝓵𝓲𝓽𝓪𝓻𝓲𝓸𝓾𝓼𝓷𝓮𝓼𝓼 (𝓢𝓮𝓷) < -- 𝐅𝐎𝐋𝐋𝐎𝐖 𝐓𝐇𝐈𝐒 𝐕𝐄𝐑𝐘𝐕𝐄𝐑𝐘𝐕𝐄𝐑𝐘 𝐂𝐎𝐎𝐋 𝐏𝐄𝐑𝐒𝐎𝐍 !!
 
 <img width="513" height="720" alt="image" src="https://github.com/user-attachments/assets/2447e7c5-ef9f-400f-bdbe-f24be941cc1f" />
