@@ -1,11 +1,28 @@
-------  -ˋˏ ༻❁༺ ˎˊ-
-- ' (I'm not very good at making these)
-- 
-- ' U'll see me using Don / Faust / Ryo / Angelica / Emma / Dulcinea / Camilie or ETC
-  
-- '  ALWAYS Matching Alien Antennas W/ @solitariousness
+• ┈ • ┈ • ୨୧ • ┈ • ┈ • 
 
-<img width="736" height="491" alt="image" src="https://github.com/user-attachments/assets/e01734dd-4153-4120-8021-094ce0251db8" />
+┊  ┊  ┊  ┊  ┊
+
+┊  ┊  ┊  ┊  ┊
+
+┊  ┊  ┊  ┊  ★ ₊ . ° . ⋆
+
+┊  ┊  ┊. ✧ ° . • 𝓝𝓪𝓶𝓮 : 𝓚𝓲𝓸𝓼𝓱𝓲 / 𝓨𝓾𝓴𝓲 / 𝓛𝓾𝔁𝓾𝓻𝓲𝓪 (𝓛𝓾𝓬𝓴𝔂)
+
+┊  ┊° .✫ ﾟ. ꒷꒦ 𝓟𝓻𝓸𝓷𝓸𝓾𝓷𝓼 : 𝓢𝓱𝓮/𝓗𝓮𝓻 (𝓣𝓱𝓮𝔂/𝓣𝓱𝓮𝓶)
 
 
-------- · · ─ ·𖥸· ─ · ·
+<img width="735" height="576" alt="image" src="https://github.com/user-attachments/assets/d99adf6e-ce49-4fdc-92d4-457bde5f12e1" />
+
+
+┊  ✦ ₊° . 𝓜𝔂 𝓢𝔀𝓮𝓮𝓽𝓮𝓼𝓽 𝓟𝓸𝓽𝓪𝓽𝓸 : @𝓼𝓸𝓵𝓲𝓽𝓪𝓻𝓲𝓸𝓾𝓼𝓷𝓮𝓼𝓼 (𝓢𝓮𝓷) < -- 𝐅𝐎𝐋𝐋𝐎𝐖 𝐓𝐇𝐈𝐒 𝐕𝐄𝐑𝐘𝐕𝐄𝐑𝐘𝐕𝐄𝐑𝐘 𝐂𝐎𝐎𝐋 𝐏𝐄𝐑𝐒𝐎𝐍 !!
+
+<img width="513" height="720" alt="image" src="https://github.com/user-attachments/assets/2447e7c5-ef9f-400f-bdbe-f24be941cc1f" />
+
+
+☆
+
+╰➜ 𝓨𝓸𝓾 𝓬𝓪𝓷 𝓼𝓮𝓮 𝓶𝓮 𝓪𝓵𝔀𝓪𝔂𝓼 (𝓢𝓸𝓶𝓮𝓽𝓲𝓶𝓮𝓼 / 𝓡𝓪𝓻𝓮𝓵𝔂) 𝓾𝓼𝓲𝓷𝓰 𝓑𝓵𝓸𝓸𝓭𝓕𝓲𝓮𝓷𝓭𝓼 (𝓜𝓸𝓻𝓮 𝓵𝓲𝓴𝓮𝓵𝔂 𝓽𝓸 𝓾𝓼𝓮 𝓢𝓪𝓷𝓬𝓱𝓸 𝓪𝓷𝓭 D𝓾𝓵𝓬𝓲𝓷𝓮𝓪)  , 𝓛𝓒𝓑 𝓝𝓸. 002 / 003 / 004 / 006 , 𝓐𝓷𝓰𝓮𝓵𝓲𝓬𝓪 (𝓜𝔂 𝓢𝓱𝓪𝔂𝓵𝓪) !! !! ° . ≠ . ıllıllı . ꒷꒦
+
+• ┈ • ┈ • ୨୧ • ┈ • ┈ •
+
+𝙲𝚁𝙴𝙳𝚂 𝚃𝙾 𝚃𝙷𝙴 𝙰𝚁𝚃𝙸𝚂𝚃𝚂 𝚃𝙷𝙰𝚃 𝙸 𝚁𝙰𝙽𝙳𝙾𝙼𝙻𝚈 𝚄𝚂𝙴𝙳 𝙰𝚂 𝚃𝙷𝙴 𝙿𝚁𝙾𝙵 𝙰𝙽𝙳 𝙵𝙰𝙽𝚁𝚃𝚂
