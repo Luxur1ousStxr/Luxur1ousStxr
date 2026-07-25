@@ -14,7 +14,7 @@
 
 <img width="513" height="720" alt="image" src="https://github.com/user-attachments/assets/2447e7c5-ef9f-400f-bdbe-f24be941cc1f" />
 
-{- 𝐓𝐀𝐊𝐄 𝐍𝐎𝐓𝐄/𝐒𝐈𝐆𝐍𝐒 : 𝐀𝐋𝐖𝐀𝐘𝐒 𝐌𝐀𝐓𝐂𝐇𝐈𝐍𝐆 𝐖/ 𝐀𝐋𝐈𝐄𝐍 𝐀𝐍𝐓𝐄𝐍𝐀𝐒 (𝐒𝐞𝐧) -}
+{- 𝐓𝐀𝐊𝐄 𝐍𝐎𝐓𝐄/𝐒𝐈𝐆𝐍𝐒 : 𝐀𝐋𝐖𝐀𝐘𝐒 𝐌𝐀𝐓𝐂𝐇𝐈𝐍𝐆 𝐖/ 𝐀𝐋𝐈𝐄𝐍 𝐀𝐍𝐓𝐄𝐍𝐍𝐀𝐒 (𝐒𝐞𝐧) -}
 
 ☆
 
