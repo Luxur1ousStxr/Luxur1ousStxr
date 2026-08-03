@@ -12,7 +12,7 @@
 
 ┊  ✦ ₊° . 𝓜𝔂 𝓢𝔀𝓮𝓮𝓽𝓮𝓼𝓽 𝓟𝓸𝓽𝓪𝓽𝓸 : @𝓼𝓸𝓵𝓲𝓽𝓪𝓻𝓲𝓸𝓾𝓼𝓷𝓮𝓼𝓼 (𝓢𝓮𝓷) < -- 𝐅𝐎𝐋𝐋𝐎𝐖 𝐓𝐇𝐈𝐒 𝐕𝐄𝐑𝐘𝐕𝐄𝐑𝐘𝐕𝐄𝐑𝐘 𝐂𝐎𝐎𝐋 𝐏𝐄𝐑𝐒𝐎𝐍 !!
 
-<img width="513" height="720" alt="image" src="https://github.com/user-attachments/assets/2447e7c5-ef9f-400f-bdbe-f24be941cc1f" />
+<img width="640" height="724" alt="image" src="https://github.com/user-attachments/assets/bb0c73cf-7e1f-4fcb-b621-ebbada14d381" />
 
 {- 𝐓𝐀𝐊𝐄 𝐍𝐎𝐓𝐄/𝐒𝐈𝐆𝐍𝐒 : 𝐀𝐋𝐖𝐀𝐘𝐒 𝐌𝐀𝐓𝐂𝐇𝐈𝐍𝐆 𝐖/ 𝐀𝐋𝐈𝐄𝐍 𝐀𝐍𝐓𝐄𝐍𝐍𝐀𝐒 (𝐒𝐞𝐧) -}
 
