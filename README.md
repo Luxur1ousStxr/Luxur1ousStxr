@@ -4,7 +4,7 @@
 
 ┊  ┊  ┊  ┊  ┊
 
-┊  ┊  ┊  ┊  ★ ₊ . ° . ⋆
+┊  ┊  ┊  ┊  ★ ₊ . ° . ⋆- ' I will be always following back on my spam acc! (Cuz I like fairs and square)
 
 ┊  ┊  ┊. ✧ ° . • - 
 
