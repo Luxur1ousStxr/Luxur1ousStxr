@@ -6,7 +6,7 @@
 
 ┊  ┊  ┊  ┊  ★ ₊ . ° . ⋆
 
-┊  ┊  ┊. ✧ ° . •
+┊  ┊  ┊. ✧ ° . • -  Whoever putted me in @pt-hall-of-media I'm going to hunt you down (TYSMMM WHOEVER IS THAT PERSON :SOB:
 
 ┊  ┊° .✫ ﾟ. ꒷꒦
 
