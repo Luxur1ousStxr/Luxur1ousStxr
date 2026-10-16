@@ -1,12 +1,12 @@
 • ┈ • ┈ • ୨୧ • ┈ • ┈ • 
 
-┊  ┊  ┊  ┊  ┊ * - @pt-hall-of-media
+┊  ┊  ┊  ┊  ┊ 
 
 ┊  ┊  ┊  ┊  ┊
 
-┊  ┊  ┊  ┊  ★ ₊ . ° . ⋆- ' I will be always following back on my spam acc! (Cuz I like fairs and square)
+┊  ┊  ┊  ┊  ★ ₊ . ° . ⋆- @pt-hall-of-media
 
-┊  ┊  ┊. ✧ ° . • - 
+┊  ┊  ┊. ✧ ° . • - ' I will be always following back on my spam acc! (Cuz I like fairs and square)
 
 ┊  ┊° .✫ ﾟ. ꒷꒦ 𝓜𝔂 𝓢𝔀𝓮𝓮𝓽𝓮𝓼𝓽 𝓟𝓸𝓽𝓪𝓽𝓸 : @𝓼𝓸𝓵𝓲𝓽𝓪𝓻𝓲𝓸𝓾𝓼𝓷𝓮𝓼𝓼 (𝓢𝓮𝓷) < -- 𝐅𝐎𝐋𝐋𝐎𝐖 𝐓𝐇𝐈𝐒 𝐕𝐄𝐑𝐘𝐕𝐄𝐑𝐘𝐕𝐄𝐑𝐘 𝐂𝐎𝐎𝐋 𝐏𝐄𝐑𝐒𝐎𝐍 !!
 
