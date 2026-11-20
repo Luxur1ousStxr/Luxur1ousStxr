@@ -12,7 +12,8 @@
 
 ┊  ✦ ₊° . 𝓜𝔂 𝓐𝓹𝓹𝓻𝓮𝓷𝓽𝓲𝓬𝓮 #002 : @𝓻𝓮𝓯𝓵𝓮𝓬𝓽𝓲𝓿𝓮𝓼𝓮𝓪 (𝓚𝓮𝓲) < -- 𝐅𝐎𝐋𝐋𝐎𝐖 𝐓𝐇𝐈𝐒 𝐕𝐄𝐑𝐘𝐕𝐄𝐑𝐘𝐕𝐄𝐑𝐘 𝐀𝐖𝐄𝐒𝐎𝐌𝐄 𝐏𝐄𝐑𝐒𝐎𝐍 !!
 
-<img width="2048" height="1324" alt="image" src="https://github.com/user-attachments/assets/16375ccd-769f-4000-97da-b5132324ca95" />
+<img width="640" height="426" alt="image" src="https://github.com/user-attachments/assets/ce226ce8-e8ac-4575-8f1f-4250b0eea0cd" />
+
 
 
 {- 𝐓𝐀𝐊𝐄 𝐍𝐎𝐓𝐄/𝐒𝐈𝐆𝐍𝐒 : 𝐀𝐋𝐖𝐀𝐘𝐒 𝐌𝐀𝐓𝐂𝐇𝐈𝐍𝐆 𝐖/ 𝐀𝐋𝐈𝐄𝐍 𝐀𝐍𝐓𝐄𝐍𝐍𝐀𝐒 (𝐒𝐞𝐧) -}
